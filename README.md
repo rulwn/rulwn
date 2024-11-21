@@ -1,4 +1,4 @@
-### mil pajaros en la cabeza no me dejan pensar
+### delirio de grandeza
 
 <!--
 **rulwn/rulwn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
